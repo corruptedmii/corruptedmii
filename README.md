@@ -1,2 +1,2 @@
-i dont know how to make these , check strawpage instead .  
-if it sort of looks like im hugging someone in-game , i likely blocked them .
+i am a wii deleted you fan and this is my art  
+![](https://file.garden/aBZuZTzGMXomaVrI/my%20art/2025-2026/caption.png)
