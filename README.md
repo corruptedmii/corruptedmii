@@ -35,7 +35,7 @@ ${\textsf{\color{#8f5947}i}}$ ㅤ ${\textsf{\color{#83281F}♡}}$ ㅤ ${\textsf{
 <summary> ${\textsf{\color{#8f5947}thin ice}}$ ${\textsf{\color{#83281F}+}}$ ${\textsf{\color{#8f5947}dni}}$ ${\textsf{\color{#83281F}.}}$ </summary>
   ${\textsf{\color{#8f5947}thin ice}}$ ${\textsf{\color{#83281F}.}}$
   
-  ${\textsf{\color{#8f5947}under 16}}$ ${\textsf{\color{#83281F},}}$ ${\textsf{\color{#8f5947}kodocons}}$ ${\textsf{\color{#83281F},}}$ ${\textsf{\color{#8f5947}pro - endo}}$ ${\textsf{\color{#83281F},}}$ ${\textsf{\color{#8f5947}use the word "double" to describe people in any context}}$ ${\textsf{\color{#83281F},}}$ ${\textsf{\color{#8f5947}radqueers}}$ ${\textsf{\color{#83281F}.}}$
+  ${\textsf{\color{#8f5947}under 16}}$ ${\textsf{\color{#83281F},}}$ ${\textsf{\color{#8f5947}kodocons - js don't directly talk to me abt it}}$ ${\textsf{\color{#83281F},}}$ ${\textsf{\color{#8f5947}pro - endo}}$ ${\textsf{\color{#83281F},}}$ ${\textsf{\color{#8f5947}use the word "double" to describe people in any context}}$ ${\textsf{\color{#83281F},}}$ ${\textsf{\color{#8f5947}radqueers}}$ ${\textsf{\color{#83281F}.}}$
 
   ${\textsf{\color{#8f5947}dni}}$ ${\textsf{\color{#83281F}.}}$
 
