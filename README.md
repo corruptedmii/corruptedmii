@@ -1,3 +1,4 @@
+<!-- i know you're forking my readme lil vro ... -->
 <div align="center">
   
 ![Typing SVG](https://readme-typing-svg.demolab.com?font=Times+New+Roman&size=20&duration=3500&pause=22&color=83281F&center=true&vCenter=true&width=435&lines=%E2%9D%9D+my+bruised+body+tied+up+snug+-;your+hand+colliding+with+my+face+.+%E2%9D%9E)
