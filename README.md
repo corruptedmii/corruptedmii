@@ -1,4 +1,4 @@
-<!-- i know you're forking my readme lil vro ... -->
+<!-- i know you're forking my readme lil vro ... i hope you know i can see all your repositories . LOL . -->
 <div align="center">
   
 ![my penis is so big bro](https://readme-typing-svg.demolab.com?font=Times+New+Roman&size=20&duration=3500&pause=22&color=4b171e&center=true&vCenter=true&width=435&lines=%E2%9D%9D+my+bruised+body+tied+up+snug+-;your+hand+colliding+with+my+face+.+%E2%9D%9E)
