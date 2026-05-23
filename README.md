@@ -9,7 +9,7 @@
 
 ${\textsf{\color{#603039}austin}}$ ㅤ ${\textsf{\color{#4b171e}╱}}$ ㅤ ${\textsf{\color{#603039}teeth}}$ ${\textsf{\color{#4b171e}.}}$    
 ${\textsf{\color{#603039}he}}$ ${\textsf{\color{#4b171e}╱}}$ ${\textsf{\color{#603039}him}}$ ㅤ ${\textsf{\color{#603039}trans}}$ ${\textsf{\color{#4b171e}.}}$    
-${\textsf{\color{#603039}7teen}}$ ㅤ  ㅤ ${\textsf{\color{#603039}queer}}$ ${\textsf{\color{#83281F}.}}$
+${\textsf{\color{#603039}7teen}}$ ㅤ  ㅤ ${\textsf{\color{#603039}queer}}$ ${\textsf{\color{#4b171e}.}}$
 
 ${\textsf{\color{#603039}pro}}$ ㅤ ${\textsf{\color{#4b171e}╱}}$ ㅤ ${\textsf{\color{#603039}comship}}$ ${\textsf{\color{#4b171e}.}}$  
 ${\textsf{\color{#603039}i}}$ ㅤ ${\textsf{\color{#4b171e}♡}}$ ㅤ ${\textsf{\color{#603039}selfcest}}$ ${\textsf{\color{#4b171e}.}}$
