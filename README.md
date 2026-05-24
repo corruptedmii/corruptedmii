@@ -54,4 +54,6 @@ ${\textsf{\color{#603039}i}}$ ㅤ ${\textsf{\color{#4b171e}♡}}$ ㅤ ${\textsf{
 
 ![](https://file.garden/aBZuZTzGMXomaVrI/graphics/electrophilia/smallselfceststamp.png) ![](https://file.garden/aBZuZTzGMXomaVrI/graphics/electrophilia/smalleteledstamp.gif)
 
+![](https://file.garden/aBZuZTzGMXomaVrI/graphics/electrophilia/smallselfceststamp2.gif)
+
 </div>
