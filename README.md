@@ -43,3 +43,15 @@ ${\textsf{\color{#603039}i}}$ ㅤ ${\textsf{\color{#4b171e}♡}}$ ㅤ ${\textsf{
   ${\textsf{\color{#603039}under 14}}$ ${\textsf{\color{#4b171e},}}$ ${\textsf{\color{#603039}pro - contact}}$ ${\textsf{\color{#4b171e},}}$ ${\textsf{\color{#603039}anti - recovery}}$ ${\textsf{\color{#4b171e},}}$ ${\textsf{\color{#603039}pedos}}$ ${\textsf{\color{#4b171e}╱}}$ ${\textsf{\color{#603039}zoos}}$ ${\textsf{\color{#4b171e}╱}}$ ${\textsf{\color{#603039}etc}}$ ${\textsf{\color{#4b171e}.}}$
 
 </div>
+
+<div align="center">
+
+![](https://file.garden/aBZuZTzGMXomaVrI/graphics/electrophilia/gofuckyourself.gif)
+
+![](https://file.garden/aBZuZTzGMXomaVrI/graphics/electrophilia/shockmesilly.gif)
+
+![](https://file.garden/aBZuZTzGMXomaVrI/graphics/electrophilia/proficinteract.gif)
+
+![](https://file.garden/aBZuZTzGMXomaVrI/graphics/electrophilia/smallselfceststamp.png) ![](https://file.garden/aBZuZTzGMXomaVrI/graphics/electrophilia/smalleteledstamp.gif)
+
+</div>
