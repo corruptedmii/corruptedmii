@@ -36,10 +36,10 @@ ${\textsf{\color{#603039}i}}$ ㅤ ${\textsf{\color{#4b171e}♡}}$ ㅤ ${\textsf{
 <summary> ${\textsf{\color{#603039}thin ice}}$ ${\textsf{\color{#4b171e}+}}$ ${\textsf{\color{#603039}dni}}$ ${\textsf{\color{#4b171e}.}}$ </summary>
   ${\textsf{\color{#603039}thin ice}}$ ${\textsf{\color{#4b171e}.}}$
   
-  ${\textsf{\color{#603039}under 16}}$ ${\textsf{\color{#4b171e},}}$ ${\textsf{\color{#603039}kodocons - js don't directly talk to me abt it}}$ ${\textsf{\color{#4b171e},}}$ ${\textsf{\color{#603039}pro - endo}}$ ${\textsf{\color{#4b171e},}}$ ${\textsf{\color{#603039}use the word "double" to describe people in any context}}$ ${\textsf{\color{#4b171e},}}$ ${\textsf{\color{#603039}radqueers}}$ ${\textsf{\color{#4b171e}.}}$
+  ${\textsf{\color{#603039}under 16}}$ ${\textsf{\color{#4b171e},}}$ ${\textsf{\color{#603039}pro - endo}}$ ${\textsf{\color{#4b171e},}}$ ${\textsf{\color{#603039}use the word "double" to describe people in any context}}$ ${\textsf{\color{#4b171e}.}}$
 
   ${\textsf{\color{#603039}dni}}$ ${\textsf{\color{#4b171e}.}}$
 
-  ${\textsf{\color{#603039}under 14}}$ ${\textsf{\color{#4b171e},}}$ ${\textsf{\color{#603039}anti - recovery}}$ ${\textsf{\color{#4b171e},}}$ ${\textsf{\color{#603039}pedos}}$ ${\textsf{\color{#4b171e}╱}}$ ${\textsf{\color{#603039}zoos}}$ ${\textsf{\color{#4b171e}╱}}$ ${\textsf{\color{#603039}etc}}$ ${\textsf{\color{#4b171e}.}}$
+  ${\textsf{\color{#603039}under 14}}$ ${\textsf{\color{#4b171e},}}$ ${\textsf{\color{#603039}pro - contact}}$ ${\textsf{\color{#4b171e},}}$ ${\textsf{\color{#603039}anti - recovery}}$ ${\textsf{\color{#4b171e},}}$ ${\textsf{\color{#603039}pedos}}$ ${\textsf{\color{#4b171e}╱}}$ ${\textsf{\color{#603039}zoos}}$ ${\textsf{\color{#4b171e}╱}}$ ${\textsf{\color{#603039}etc}}$ ${\textsf{\color{#4b171e}.}}$
 
 </div>
